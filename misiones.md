@@ -5,5 +5,6 @@
 3. Buscar nuevos miembros para la liga
 5. Investigar los trabajos del Joker
 6. Tratar de investigar que trama el Flash Reverso
-7. Meter a la carcel a Lex Luthor
-8. Hacer una fiesta por que salvamos al mundo.
+7. Romperle su mamá a Lex Luthor
+8. Meter a la carcel a Lex Luthor
+9. Hacer una fiesta por que salvamos al mundo.
